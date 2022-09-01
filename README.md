@@ -1,1 +1,1 @@
-# Aryabhatta
+# Aryabhaiya
